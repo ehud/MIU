@@ -1,2 +1,2 @@
 # MIU
-MIU from GEB, circa 1980
+MIU from GEB, probably written late 1980s
